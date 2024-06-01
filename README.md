@@ -6,3 +6,4 @@
 ![alt text](https://media.discordapp.net/attachments/1158139695209914440/1244906472983367721/200w.gif?ex=6656d100&is=66557f80&hm=ba426a195ebe24befbc334737a21599d81240078554f793415055fc801479dae&=&width=250&height=200 "hamster")  
                                                 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Filliteracyprevail%2Fhit-counter&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)                    
 `discord: embryoyo`
+sign my [__guestbook__](https://ourworldoftext.com/kurdt)
